@@ -1,6 +1,7 @@
 # About me
 ## 👀 I’m interested in
 social sciences
+music production
 ## 🌱 I’m currently learning
 coding skills
 ## 💞️ I’m looking to collaborate on
